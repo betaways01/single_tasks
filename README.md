@@ -19,4 +19,5 @@
 
 ***This repo is for reference ONLY, and learning some basic stuff on quick tasks in campus. Feel free to TAKE A LOOK, but dont copy.***
 ## References
-***Special Thanks to: [Beta Ways](https://www.fiverr.com/share/Ka8z5Y) for these helpful and quality materials***
+***Special Thanks to: [Beta Ways](betaways01@gmail.com) for these helpful and quality materials.***
+***For Academic and homework, reach out to me via: `+254711170760` WhatsApp***
